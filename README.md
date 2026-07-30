@@ -10,8 +10,8 @@ Papers are generated daily at 9:00 AM MST and automatically committed to this re
 
 ## Author
 Audrey Evans  
-ORCID: 0009-0005-0663-7832  
-Email: angelreporters@gmail.com
+ORCID:  0009-0004-9108-3995  
+Email: audrey@freedomangelcorps.com
 
 
 ---
